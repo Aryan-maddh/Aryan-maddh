@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me #coming soon
 - 😄 Pronouns: Derek 
-- ⚡ Fun fact: 🌟 😀 This is my 2nd account.
+- ⚡ Fun fact: 🌟 Secret😆👻
 <h1>thederek</h1>
 
 <picture>
