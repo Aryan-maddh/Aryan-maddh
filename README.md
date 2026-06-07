@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Aryan-maddheshiya
 - 👀 I’m interested in PYTHON.
-- 🌱 I’m currently pursuing computer science and engineering.
+- 🌱 I’m an ai/ml / python developer.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me #coming soon
 - 😄 Pronouns: Derek 
